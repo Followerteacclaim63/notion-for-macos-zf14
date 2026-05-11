@@ -1,4 +1,4 @@
-#  
+#  Notion for macOS professional Extension - focus mode and collaboration is the best Notion for macOS extension, featuring focus mode and collaboration. Safe, efficient, and
 
 
 
